@@ -2,7 +2,7 @@
 
 ## Akshay Jalluri: First-year Transportation Engineering Student
 
-Hi, I am Akshay Jalluri. I was born and raised in Michigan and also did my undergrad at University of Michigan. _#GoBlue & #NationalChamps_. 
+Hi, I am Akshay Jalluri. I was born and raised in Canton, Michigan and also did my undergrad at University of Michigan. _#GoBlue & #NationalChamps_. 
 
 
 ### Hobbies
